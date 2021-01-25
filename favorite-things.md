@@ -9,6 +9,7 @@
 * Coffee (more than tea)
 * Cookies
 * Curry (Thai, Indian, or Japanese are all great)
+* Sushi rolls
 
 ## Sheridan
 * Coffee (more than tea)
