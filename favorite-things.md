@@ -5,6 +5,7 @@
 * Trying new restaurants
 * Lobster fried rice
 * Escoveitch chicken
+* Seafood
 
 ## Rise
 * Coffee (more than tea)
@@ -12,6 +13,7 @@
 * Curry (Thai, Indian, or Japanese are all great)
 * Sushi rolls
 * Trader Joe's snacks
+* Aquariums
 
 ## Sheridan
 * Tea (more than coffee) 
