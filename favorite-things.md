@@ -15,3 +15,5 @@
 * Tea (more than coffee) 
 * Travel
 * Cupcakes
+* Pumpkin Spice
+* Anime
