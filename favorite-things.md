@@ -12,6 +12,6 @@
 * Sushi rolls
 
 ## Sheridan
-* Coffee (more than tea)
+* Tea (more than coffee) 
 * Travel
 * Cupcakes
