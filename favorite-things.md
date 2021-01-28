@@ -4,6 +4,7 @@
 * Tea (more than coffee)
 * Trying new restaurants
 * Lobster fried rice
+* Escoveitch chicken
 
 ## Rise
 * Coffee (more than tea)
@@ -17,3 +18,4 @@
 * Cupcakes
 * Pumpkin Spice
 * Anime
+* Cold weather
