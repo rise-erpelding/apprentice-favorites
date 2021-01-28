@@ -11,6 +11,7 @@
 * Cookies
 * Curry (Thai, Indian, or Japanese are all great)
 * Sushi rolls
+* Trader Joe's snacks
 
 ## Sheridan
 * Tea (more than coffee) 
